@@ -7,3 +7,5 @@
 #### what i mean is this account is a joke and a personal account and features some random stuff i made
 
 #### thx for reading :)
+
+p.s. - i do in-fact work on legit stuff.
